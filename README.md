@@ -1,4 +1,4 @@
-# Doing-Data-Science-Project-1
+# Doing-Data-Science-Case Study 2
 
 Patricia Herrera
 
