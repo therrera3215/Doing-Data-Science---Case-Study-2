@@ -45,6 +45,8 @@ Our study found that job level, overtime, and business travel contributed the mo
 #Youtube 
 
 Tricia Herrera Youtube Video: 
+https://youtu.be/3rklu2ftaX4
+
 
 
 
